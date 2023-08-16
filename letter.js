@@ -30,7 +30,7 @@ m people end up hurting the ones closest to them. You are kinda young, and it's 
 natural to do stuff impulsively. But sometimes usi impulsiveness ke wajeh se you do stuff>
 that you really don't want to do. Iss se kya hoga ki, baaki logon ka choro, you would be >
 hurting yourself the most. And it is evident from the fact how often you say sorryy.>
-Pyaari anjali if I have hurt you in any way, sorrry da. Lovee youu. 
+Pyaari anjali if I have hurt you in any way, sorrry da. Lovee youu.>>
 
 Regards >
 Jeevan
